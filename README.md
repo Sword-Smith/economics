@@ -48,6 +48,8 @@ Mises U, Joseph T. Salerno, 2013
 https://youtu.be/7cs490NJr5g
 Mises U, Jonathan Newman, 2021
 
+Why you should blame central banks for the current situation of scarcity.
+
 #### Austrian Alternatives to Conventional Economic Statistics
 https://youtu.be/9x5djkog1xI
 Mises U, Jonathan Newman, 2019
