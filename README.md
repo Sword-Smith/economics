@@ -77,7 +77,7 @@ https://epdf.pub/how-an-economy-grows-and-why-it-crashes.html
 
 Irwin Schiff and Peter Schiff, 2010
 
-A cartoon describing the conception of an economy from a "state of nature". Especially the introduction is good. Later on it comments on specific and current economic questions which may not be as timeless as the introduction.
+A cartoon describing the conception of an economy from a "state of nature". Especially the introduction is good. Later on it comments on specific and current economic questions which may not be as timeless as the introduction. Heavy emphasis on the role of money.
 
 ## Public Choice
 Public Choice Theory is the analysis of the political decision process through the lens of economics and incentives.
