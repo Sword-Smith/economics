@@ -60,7 +60,7 @@ What are mainstream eocnomic statistical indicators missing according to an Aust
 https://youtu.be/9VMNJowUoGk
 Mises U, Walter Block, 2011
 
-Are there certain kinds of goods that can only be provided by the government, or are there private alternatives to their provision? Walter Block on externalities and different types of goods, excludable and rivalrousness. Good speech showing the difference between neoclassical and Austrian approaches.
+Are there certain kinds of goods that can only be provided by the government, or are there private alternatives to their provision? Walter Block on externalities and different types of goods, excludability and rivalrousness. Good speech showing the difference between neoclassical and Austrian approaches.
 
 #### Only the Austrians Understand Interest Rates
 https://youtu.be/tDkNPNSgiaY
