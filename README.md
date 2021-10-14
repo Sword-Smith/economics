@@ -105,3 +105,22 @@ https://youtu.be/RILDjo4EXV8
 Mises U, Robert Higgs, 2013
 
 An emotional appeal against the existence of government.
+
+## Hardcore stuff
+#### Basic Economics, by Thomas Sowell
+
+Best book on economics I ever read.
+
+#### Atlas Shrugged, Ayn Rand
+
+Good book introducing "objectivism" which is a philosophy that combines psychology with economics and is very efficient at identifying certain negative psychological traits that are common in society.
+
+#### Murray Rothbard's, Economics 101 (whole course)
+https://www.youtube.com/playlist?list=PLKjJE86mQRtuTPQ1Fm4isMG1w9fTWBu-X
+
+A collection of eight lectures by Murray N. Rothbard, spanning from the 1970s to the early 1990s. He is speaking in a small classroom setting, explaining economics from the ground up, and systematically in the manner of a classic 101 course on the topic—but with a revolutionary approach.
+
+#### Murray Rothbard's Introduction to Microeconomics (whole course)
+https://www.youtube.com/playlist?list=PLKjJE86mQRtvCN4vEsxYEntK0MFbsAv4t
+
+Presented by Murray N. Rothbard in 1986 at New York Polytechnic University. Recorded by Hans-Hermann Hoppe.
