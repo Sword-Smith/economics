@@ -56,6 +56,11 @@ Mises U, Jonathan Newman, 2021
 
 Why you should blame central banks for the current situation of scarcity.
 
+https://youtu.be/9a-eUKjnDfM
+Mises U, Tom Woods, 2009
+
+Short summary of Austrian business cycle theory. Good analogy about a builder with a bag of bricks.
+
 #### Austrian Alternatives to Conventional Economic Statistics
 https://youtu.be/9x5djkog1xI
 Mises U, Jonathan Newman, 2019
