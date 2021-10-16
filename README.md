@@ -37,6 +37,12 @@ Mises U, Shawn Ritenour, 2019
 
 How do you make a flourless chocolate cake, can you scale this production, and what do you need if you want to scale it?
 
+#### Money
+https://youtu.be/B-70fyIzgLk
+Mises U, Lucas M. Engelhardt, 2016
+
+What role does money play in the economy, and why is it useful? How money arises in the market, without government intervention and what qualities money should have: divisible, durable, fungible, scarce, portable, widely accepted. Also has a short discussion on the consequences of money printing and how it distorts prices, salaries, and production, thus introducing some content of Austrian business cycle theory and the cantillong effect.  
+
 ## Advanced Austrian Economics
 Austrian Economics has made two significant contributions to the science of economics: "Austrian business cycle theory" about the dynamic effects of excessive money printing, and "calculation and socialism" about the role that prices play in disseminating and condensing information about scarcity and superior production methods.
 
