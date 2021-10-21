@@ -79,6 +79,33 @@ Mises Circle, Robert P. Murphy, 2010
 
 Good parallel between oil prices and interest rates
 
+## Libertarianism
+Walter Block, Tom Woods, and Murray Rothbard are all excellent proponents of libertarianism. The latter two are good at addressing libertarianism with an emotional approach.
+
+#### What is libertarianism?
+https://youtu.be/WGVtgIWDrMc
+Walter Block, 2010
+
+How do you derive what the libertarian position on something is? Excellent quick overview of libertarian positions on all matter politics.
+
+#### The history of Murray Rothbard's Political Philosophical Journey
+https://youtu.be/M3HatEn0BjI
+National Libertarian Party Convention, 1981
+
+From Murray Rothbard's experience with public schools to widespread communism in the Jewish intellectual environment to his father as his only libertarian ally to a fringe philosophy club called the Bastiats where Rothbard goes from mainstream republican, to extremist Republican minarchist to libertarian anarchist. Stories about Ludvig von Mises and the hijacking of the rightwing by National Review by the New Right in the end-50s who forces Rothbard and allies out of the movement.
+
+Good insight into the fall and rise of libertarian thoughts in America. Mentions personal meetings with Ayn Rand, William Buckley, Ludwig von Mises, and Ron Paul. Foresees private companies taking over spaceflight and predicts that Ron Regan's gold commission will not recommend a return to the gold standard. Lauds Ayn Rand's philosophy but denounces her personality and following as a cult.
+
+Humorous, insightful, warm.
+
+#### What is the connection between libertarianism and Austrian economics?
+https://youtu.be/DStLhWMRERM
+Mises U, 2013
+
+Tom Woods describes how an Austrian analysis leads to an libertarian value system, provided you want what's best for people, provided you have a utilitarian perspective where other people's happiness matter to you.
+
+Why is Mises University a great community, and how can you use the knowledge that you here to make the world a better place? Talks about the futility and frustration that students of Austrian economics might face when confronted with the realities of politics, how this also applied for the founders of the economic school of thought at the turn of the previous century. How do we shape our lives in the knowledge of an inescapable catastrophe?
+
 ## Money
 #### History and causes of inflation
 https://youtu.be/afWqKcqntfs
