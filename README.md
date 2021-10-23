@@ -5,6 +5,8 @@ A video on this list does not necessarily mean that I support the entire message
 
 This is mainly a list of videos, but books and articles are also welcome here.
 
+Make a pull-request if you want to add something!
+
 ## Introduction to Economics
 #### Free to Choose, part 1
 https://youtu.be/dngqR9gcDDw
