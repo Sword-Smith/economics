@@ -115,7 +115,9 @@ https://youtu.be/afWqKcqntfs
 Dr. Martenson's Crash Course, Chapter 10, 2009. Important resource for me in realizing that inflation is a deliberate policy, not a force of nature. We don't **have** to live in a world of inflation, we **can** escape it.
 
 #### How an economy grows and why it crashes
-https://epdf.pub/how-an-economy-grows-and-why-it-crashes.html
+https://riosmauricio.com/wp-content/uploads/2019/12/How-an-Economy-Grows-and-Why-It-Crashes-2010.pdf
+or
+https://www.amazon.com/How-Economy-Grows-Why-Crashes/dp/047052670X
 
 Irwin Schiff and Peter Schiff, 2010
 
